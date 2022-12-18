@@ -1,5 +1,5 @@
 # 💫 About Me:
-I have a solid asset management background with extensive knowledge of asset management products. <br>Highly interest with quantitative portfolio management, automation scripts and financial data analysis as a financial engineering master graduate.. <br>I’m professional with strong interpersonal skills and a collaborative team player with positive attitude. <br>I’m highly disciplined and dedicated person as a 10-year professional fitness athlete.
+I have a solid asset management background with extensive knowledge of asset management products. <br>Highly interest with quantitative research, automation scripts and financial data analysis as a financial engineering master graduate.. <br>
 
 
 ## 🌐 Socials:
