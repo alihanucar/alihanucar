@@ -1,5 +1,5 @@
 # 💫 About Me:
-I have a solid asset management background with extensive knowledge of investment products. <br>Highly interest with quantitative research, automation scripts and financial data analysis as a financial engineering master graduate.. <br>
+I have a solid asset management background with extensive knowledge of investment products. <br>Highly interest with quantitative research, automation scripts and financial data analysis as a financial engineering master graduate. <br>
 
 
 ## 🌐 Socials:
