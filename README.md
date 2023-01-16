@@ -1,5 +1,5 @@
 # 💫 About Me:
-I have a solid asset management background with extensive knowledge of investment products. <br>Highly interest with quantitative research, automation scripts and financial data analysis as a financial engineering master graduate. <br>
+I am Alihan and I am an aspiring financial engineer. I've been working on some dummy codes and I thought, why not share them with the world? <br> I am highly interest with quantitative research, automation scripts and financial data analysis. <br>
 
 
 ## 🌐 Socials:
