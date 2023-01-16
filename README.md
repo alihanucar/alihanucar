@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am Alihan and I am an aspiring financial engineer. I've been working on some dummy codes and I thought, why not share them with the world? <br> I am highly interest with quantitative research, automation scripts and financial data analysis. <br>
+I am Alihan and I am an aspiring financial engineer. I've been working on some dummy codes and I thought, why not to share them with the world? I am highly interest with quantitative research, automation scripts and financial data analysis. You can find some examples about those topics on my account in time <br> 
 
 
 ## 🌐 Socials:
